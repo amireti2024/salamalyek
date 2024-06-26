@@ -1,1 +1,1 @@
-ratorratooo.click
+toorateetoo.shop
